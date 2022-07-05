@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @priyaverma2097
+- 👀 I’m interested in Data Analytics
+- 🌱 I’m currently brushing up the required skills
+- 💞️ I’m looking to collaborate with you
+- 📫 How to reach me priyaverma.planner@gmail.com
